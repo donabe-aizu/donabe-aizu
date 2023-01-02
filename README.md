@@ -1,3 +1,7 @@
+ポートフォリオ: https://donabe.myportfolio.com/
+Twitter: https://twitter.com/donadonadonabe
+ブログ: https://donabenabe.hatenablog.com/
+
 趣味：ゲーム(特にシミュレーション)、アニメ、Vtuber、鉄道旅行、音楽(サカナクション、ボカロなど)  
 興味：触覚再現、VRを利用した遠隔コミュニケーション等に興味があります。
 
