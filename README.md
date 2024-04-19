@@ -3,7 +3,7 @@ Twitter: https://twitter.com/donadonadonabe
 ブログ: https://donabenabe.hatenablog.com/  
 
 趣味：ゲーム(特にシミュレーション)、アニメ、Vtuber、鉄道旅行、音楽(サカナクション、ボカロなど)  
-興味：VR
+興味：MR、VR
 
 有料アセットなどを使っているためprivateリポジトリが多いです。
 
